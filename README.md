@@ -32,4 +32,4 @@ Envía un pull request.
 Contacto
 Si tienes alguna pregunta o sugerencia, no dudes en ponerte en contacto conmigo a través de tu correo electrónico o en Instagram.
 
-Gracias por visitar mi portafolio. ¡Espero que te guste!
+Gracias por visitar mi portafolio. ¡Espero que te guste! （*＾-＾*）
